@@ -1,1 +1,1 @@
-# Sure-here-s-the-translation-to-English-Comparison-of-Some-Models-
+#Comparison-of-Some-Models-
